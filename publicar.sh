@@ -8,5 +8,7 @@ function acp {
 }
 
 hugo
+rm -rf docs
 mv public docs
+cp CNAME docs/
 acp "Publicando site"
