@@ -28,6 +28,8 @@ Nunca consegui praticar um esporte coletivo sem ser ridicularizado pela minha fa
 Obviamente estou chorando e me curando dos meus traumas de infância nesse momento. Muito libertador, recomendo a todos que se curem através da escrita, que também é uma forma de terapia.
 
 A terapia me ajudou,  
+minha amada esposa me ajuda muito,  
+a vontade de dar um bons exemplos para meu filho me ajudou,  
 amigos me ajudaram,  
 Deus me ajudou,  
 a dança me ajudou,  
