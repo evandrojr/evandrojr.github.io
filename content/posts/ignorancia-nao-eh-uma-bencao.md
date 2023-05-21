@@ -9,13 +9,13 @@ featured_image: '/images/futebol.jpg'
 (Acredito que meu sono já esteja melhorando com esses textos por não estar acordando mais às 3 da manhã)
 
 
-Meu amigo do trabalho Cleiton, o Gandhi, costumava falar assim pra mim. “Evandro você é gente boa demais, aqui no trabalho tem um monte de autista nerd, mas você é alegre e sociável”.
+Um amigo do meu trabalho, costumava falar assim pra mim. “Evandro você é gente boa demais, aqui no trabalho tem um monte de autista nerd, mas você é alegre e sociável”.
 
 Ele falava isso de coração e eu pensava que no trabalho realmente tinha um monte de gente que vivia isolada no mundinho deles e que não gostavam de socializar. Que galera antissocial! Nem beber bebiam!
 
 Também tinha a galera que tomava todas e davam PT com frequência nas confraternizações do trabalho. E eu achava aquilo curioso, como tinha gente adulta que ainda não sabia beber e quase sempre passava do ponto.
 
-Meu amigo Cleiton e eu éramos ambos ignorantes. Eu estava rotulando pessoas sem nem saber a história de vida deles e nem reconhecia em mim mesmo que eu tinha problemas com autismo e álcool.
+Esse meu amigo e eu éramos ambos ignorantes. Eu estava rotulando pessoas sem nem saber a história de vida deles e nem reconhecia em mim mesmo que eu tinha problemas com autismo e álcool.
 
 Alcoolismo é uma doença, acredito que a maioria das pessoas que bebem demais não acreditam que o álcool está afetando elas de alguma forma. E muito menos que dá para viver sem beber e ser mais feliz do que quando bebia. Eu mesmo não imaginava que isso pudesse acontecer. Achava que isso era uma mentira que era contada para as pessoas, mas não é. Pelo menos para mim com certeza não é.
 
