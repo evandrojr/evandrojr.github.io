@@ -4,7 +4,7 @@ date: 2023-05-08T04:45:28-03:00
 draft: false
 featured_image: '/images/danca.avif'
 ---
-### Salvador, madrugada de 8 de maio de 2023.
+### Salvador, alvorada de 8 de maio de 2023.
 
 ### Longo demais, resumindo:
 
