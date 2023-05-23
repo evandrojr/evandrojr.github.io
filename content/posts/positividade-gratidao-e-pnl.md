@@ -1,5 +1,5 @@
 ---
-title: "Pensamento positivo, gratidões e PNL"
+title: "Daddy issues, pensamento positivo, gratidões e PNL"
 date: 2023-05-23T04:45:28-03:00
 draft: false
 featured_image: '/images/gratidao.jpg'
