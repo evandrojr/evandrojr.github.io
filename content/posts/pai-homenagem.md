@@ -39,7 +39,7 @@ Ele me ensinou a tratar bem e agradar as mulheres. Graças a ele ter me dado a d
 Ele me ensinou a abraçar e beijar as pessoas e não ter vergonha de demonstrar amor. Ele sempre dizia que me amava e me dava cada abraço gostoso com cheiro de loção pós barba. Vou até procurar a mesma loção para mim. Efeito: Não tem um dia que eu não encha meu filho de beijos e abraços! Obrigado por essa dica sensacional!
 
 
-Ele era um aventureiro que me mostrou que não precisamos ter uma vida padrão. Ele passou a indústria para meus irmãos, comprou um trailer e saiu viajando pelo Brasil curtindo a vida com minha mãe. Depois que se separou, foi para a Disney viver a criança que habita nele. Eu também fui na Disney de Paris, seguindo a sua tilha papai kkk.
+Ele era um aventureiro que me mostrou que não precisamos ter uma vida padrão. Ele passou a indústria para meus irmãos, comprou um trailer e saiu viajando pelo Brasil curtindo a vida com minha mãe. Depois que se separou, foi para a Disney viver a criança que habita nele. Eu também fui na Disney de Paris, seguindo a sua trilha papai kkk.
 
 
 Queria muito que você tivesse conhecido seu neto Benjamin. Ele tem muito das nossas características boas. Ele sempre inventa histórias mirabolantes sobre o avô dele. Espero que você possa escutá-las de onde vocês estiver e dar risadas com mais uma figurinha da nossa família. Ele é a nossa obra prima de graciosidade, hiperatividade e amor!
