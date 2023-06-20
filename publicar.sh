@@ -7,7 +7,7 @@ function acp {
  git push
 }
 
-hugo
+HUGO_ENV=production hugo
 rm -rf docs
 mv public docs
 cp CNAME docs/
