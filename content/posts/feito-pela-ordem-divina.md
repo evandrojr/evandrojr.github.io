@@ -13,7 +13,7 @@ Hello my friends 👋
 Lembra que contei pra vocês que descobri um vazio, identifiquei o nome dele, decidi viver de decisão e comecei a atualizar meus drivers mentais? Pronto. Já está feito na Ordem Divina.
 
 
-Identificar o problema, decidir resolver e fazer acontecer. Essa foi a minha receita do bolo. Meu tutorial. Minha rota traçada no trajeto da minha nova vida. Ueeeeeebaaaaaaa. Nova Vidaaaaa???  É sim, my friends. Nova Vida
+Identificar o problema, decidir resolver e fazer acontecer. Essa foi a minha receita do bolo. Meu tutorial. Minha rota traçada no trajeto da minha nova vida. Ueeeeeebaaaaaaa. Nova Vidaaaaa???  É sim, my friends, nova Vida.
 E você, como você está? Como foi seu dia? Me conte.
  
 Vem. Te conto...
@@ -43,8 +43,6 @@ Vem comigo, vou te apresentar um por um dos meus amigos.
 Esse é o objetivo desse livro, eternizar pessoas. Eternizar amizade e gratidão. Que é o que levo de lembrança de cada um deles. E se você faz parte da minha vida ou já passou por ela. As coisas boas (e só as coisas boas) que vivemos juntos, vou contar e eternizar aqui. 
 
 E você vai gostar. Escrever é o que eu mais gosto de fazer nessa vida. E faço bem, pois as pessoas comentam que se identificam com minha escrita.
-
-Durante muitos anos vivi presa a pensamentos errados, sentimentos errados, metas indefinidas, levada pelas circunstâncias, como mera espectadora da minha própria vida. Sentada na platéia. 
 
 Durante muitos anos vivi presa a pensamentos errados, sentimentos errados, metas indefinidas, levada pelas circunstâncias, como mera espectadora da minha própria vida. Sentada na platéia. 
 
