@@ -9,25 +9,26 @@ Capítulo: **Level Three**
 Escritora: Gabriela  
 Participação especial: Evandro  
 
-Hello my friends  
+Hello my friends 👋 
 Lembra que contei pra vocês que descobri um vazio, identifiquei o nome dele, decidi viver de decisão e comecei a atualizar meus drivers mentais? Pronto. Já está feito na Ordem Divina.
+
 
 Identificar o problema, decidir resolver e fazer acontecer. Essa foi a minha receita do bolo. Meu tutorial. Minha rota traçada no trajeto da minha nova vida. Ueeeeeebaaaaaaa. Nova Vidaaaaa???  É sim, my friends. Nova Vida
 E você, como você está? Como foi seu dia? Me conte.
  
-Te conto...
+Vem. Te conto...
 
 **Identifiquei** o problema (sensação de não pertencimento, repare que muito além de perceber o problema, entendi que era "sensação" e não de fato uma exclusão e para isso foi necessário um processo longo e desafiador de AUTOCONHECIMENTO).
 
 **Decidi resolver** o problema, lembra? Decidir viver de decisão é a primeira decisão importante. 
 
-Só descobrir o problema, catar os gravetos, desenhar com gravetos a palavra "HELP" na areia e passar o resto da vida perdida e sozinha numa ilha deserta lá do fundo do mar não (Quem já assistiu o desenho animado Bob Esponja sabe que é totalmente possível existir uma ilha deserta no fundo do mar. Tudo é possível Kkkkkkkkkk).
+Só descobrir o problema, catar os gravetos, desenhar com gravetos a palavra "HELP" na areia e passar o resto da vida perdida e sozinha numa ilha deserta lá do fundo do mar não (Quem já assistiu o desenho animado Bob Esponja sabe que é totalmente possível existir uma ilha deserta no fundo do mar. Tudo é possível Kkkkkkkkkk😉😁😁😁).
 
 Não. Não. Não. Não. Não. Não. Me recuso.  
 Decidi resolver! Juntei os gravetos, amarrei com palha do meu amigo coqueiro e construí uma jangada. 
 Transformei a palavra HELP em LET'S GO! E vamo que vamo Level Up, Gabrielaaaaa! Boraaaaaa, continue a nadar, remar, navegar, voar, mexa-se! Dance!  
 Faça alguma coisa.  
-Já está feito na Ordem Divina!
+Já está feito na Ordem Divina🙌🏽
 
 **Decidi começar. Fazer algo.**
 
@@ -37,12 +38,13 @@ Bom... decidir encontrar a raiz do problema e decidir resolver: SIM. Essas decis
 
 Porém, na minha "navegação" nesse mar, ora tempestuoso, ora calmo tive auxílio, ajuda, participação de muita. Muita. Muita. Muita gente boa e maravilhosa. (Tiveram os ruins, também, porém, O Grande Eu Sou, me deu o dom de transformar inimigos em amigos, ainda que eles não mereçam ou queiram. Transformo todos em amigos. A minha essência não muda por causa da falta de essência do coleguinha).
 
-E se você vier comigo, vou te apresentar um por um dos meus amigos. 
+Vem comigo, vou te apresentar um por um dos meus amigos. 
 
-Esse é o objetivo desse livro, eternizar pessoas. Eternizar amizade e gratidão. Que é o que levo de lembrança de cada um deles. E se você faz parte da minha vida ou já passou por ela. As coisas boas (e só as coisas boas) que vivemos juntos, eu vou contar. E você vai gostar. Escrever é o que eu mais gosto de fazer nessa vida. E faço bem, pois as pessoas comentam que se identificam com minha escrita.
+Esse é o objetivo desse livro, eternizar pessoas. Eternizar amizade e gratidão. Que é o que levo de lembrança de cada um deles. E se você faz parte da minha vida ou já passou por ela. As coisas boas (e só as coisas boas) que vivemos juntos, vou contar e eternizar aqui. 
 
+E você vai gostar. Escrever é o que eu mais gosto de fazer nessa vida. E faço bem, pois as pessoas comentam que se identificam com minha escrita.
 
-Durante muitos anos vivi presa a pensamentos errados, sentimentos errados, metas indefinidas, levada pela vida, como mera espectadora da minha própria vida. 
+Durante muitos anos vivi presa a pensamentos errados, sentimentos errados, metas indefinidas, levada pelas circunstâncias, como mera espectadora da minha própria vida. Sentada na platéia. 
 
 Durante muitos anos vivi presa a pensamentos errados, sentimentos errados, metas indefinidas, levada pelas circunstâncias, como mera espectadora da minha própria vida. Sentada na platéia. 
 
@@ -102,7 +104,7 @@ Acho que vou lançar o grupo de compulsão por dança. Esse a galera do fitdance
 Gabriela, vá devagar, mas vá, siga seu destino um passinho a cada dia. É mais importante estar engatinhando na direção correta do que estar correndo em direção ao precipício. Você já é outra pessoa cheia de vida. Bastou ir lutar pelos seus objetivos de vida, escrevendo sua linda história de superação, se associando a novos amigos e dançando suas dores e alegrias.
 Não se preocupe em acertar tudo de primeira. Isso gera paralisação em nós. O ótimo é inimigo do bom. Vamos do jeito que conseguimos ir e vamos juntos de galera do bem! 
 
-Que linda participação amigo Evandro Gratidão 
+Que linda participação amigo Evandro Gratidão 🙏🏽 Fiquei emocionada 😊
 
 Mais na frente te apresento com mais calma, o Evandro 
 
@@ -120,31 +122,34 @@ Quando, mesmo em meio a tanta alegria, alguém ainda se sente triste, falta algu
 
 Por fim, as luzes apagam, o som desliga, o efeito do álcool passa. E o vazio tá lá.
 
-Continuar não pertencendo. É um sofrimento. E dói.  
+Continuar não pertencendo. É um sofrimento. E dói. Dói muito. 
 E no Google não tem remédio para essa dor.  
 E quem pode julgar alguém que vive preso no loop do NÃO PERTENCIMENTO???  
 E quem pode julgar alguém que para fugir da dor, busca outras vezes "as fugas"???
 
 Quem nunca sentiu, julga. Simplesmente, não entende. Não viveu, não sentiu, nem sabe do que se trata.
 
-Quem já sentiu, sabe o quanto dói e entende. Entende sim.  
-Quem sente, precisa de uma mão. Mão amiga Bora? Vamos juntos.
+Quem sente, precisa de uma mão. Mão amiga   
+E quem já saiu ou tá saindo, quer muito estender a mão. Mão amiga ✋🏽👊🏽  
+Bora? Vamos juntos.
+
 
 No Google também não tem o passo a passo descrito de como curar o NÃO PERTENCIMENTO. É continuar nadando...  
 Fazer alguma coisa é o primeiro passo!  
-•Deseje descobrir a raiz do problema;   
+•Deseje descobrir a raiz do problema;  
 •Busque autoconhecimento;  
-•Decida resolver o problema, sair da zona do sofrimento;   
-•As formas de mudar vão aparecer, agarre-as;  
-•Aja! Nade, reme, navegue, ande, corra, dance, voe. Mas vá! LET'S GO!  
-•Faça alguma coisa. Não se acostume, não se acomode, não se abandone;   
-•Vença!
+•Decida resolver o problema, sair da zona do sofrimento;  
+•Agarre as oportunidades: as formas e possibilidades de mudar vão aparecer;  
+•Aja! Nade, reme, navegue, ande, corra, dance, voe. Mas vá! LET'S GO! Vá com medo, mas vá! Ainda que ninguém acredite em você, nem você mesmo. Ainda assim, vá! O Poder Superior, O Grande Eu Sou acredita em você;   
+•Faça alguma coisa. Não se acostume, não se acomode, não se abandone;    
+•Vença!  
+
 
 Tá dando certo pra mim.  
 Tá dando certo pra você. 
 
 Alguns grupos de ajuda que participei na jornada de subir de nível, passar de fase, LEVEL UP:  
-Minha família de origem, minha família que formei, igrejas cristãs, psicólogos, psicanalistas, o grupo AA, amigos, muitos amigos, bons e grandes amigos e DANÇA. A dança é minha terapia master. Tá só começando. Vamos juntos?
+Minha família de origem, minha família construída (seremos pra sempre uma família), igrejas cristãs, psicólogos, psicanalistas, o grupo dos 12 passos, amigos (muitos amigos, bons e grandes amigos) e DANÇA. A dança é minha terapia master. 
 
 Continue a nadar, Dory.  
 (Gabriela/Dory)
