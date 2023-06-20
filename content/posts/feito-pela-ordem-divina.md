@@ -149,7 +149,7 @@ Tá dando certo pra mim.
 Tá dando certo pra você. 
 
 Alguns grupos de ajuda que participei na jornada de subir de nível, passar de fase, LEVEL UP:  
-Minha família de origem, minha família construída (seremos pra sempre uma família), igrejas cristãs, psicólogos, psicanalistas, o grupo dos 12 passos, amigos (muitos amigos, bons e grandes amigos) e DANÇA. A dança é minha terapia master. 
+Minha família de origem, minha família construída (seremos pra sempre uma família), igrejas cristãs, psicólogos, psicanalistas, os grupos de 12 passos, amigos (muitos amigos, bons e grandes amigos) e DANÇA. A dança é minha terapia master. 
 
 Continue a nadar, Dory.  
 (Gabriela/Dory)
