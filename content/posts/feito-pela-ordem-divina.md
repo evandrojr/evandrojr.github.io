@@ -5,7 +5,7 @@ draft: false
 featured_image: '/images/nano_levelup.jpg'
 ---
 Livro: **Level Up**  
-Capítulo: **Three**  
+Capítulo: **Level Three**  
 Escritora: Gabriela  
 Participação especial: Evandro  
 
