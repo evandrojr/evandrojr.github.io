@@ -3,7 +3,7 @@ languageCode = 'pt'
 title = 'Em Desconstrução'
 theme = 'ananke'
 disqusShortname = 'emdesconstrucao'
-googleAnalytics = '376067734'
+googleAnalytics = 'G-55LRX8SYX4'
 
 [sitemap]
   changefreq = "monthly"
