@@ -49,6 +49,8 @@ Deus - Se você não me fizesse dessa forma única, nada disso teria acontecido.
 
 Ana Paula Leite (te amo, meu amor)
 
+Gabriela, a doida que topou começar essa loucura comigo
+
 Maria José (minha mãe que fazia aula de swing baiano comigo)
 
 Instrutores:
