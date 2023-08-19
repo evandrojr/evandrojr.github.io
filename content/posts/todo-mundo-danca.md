@@ -51,10 +51,13 @@ Ana Paula Leite (te amo, meu amor)
 
 Gabriela, a doida que topou começar essa loucura comigo! 
 
+Paulinho Show, que nos incentiva todas as aulas e é um exemplo para nossas vidas. Waldir do Let's dance,
+
+Daisy - Nossa amiga que treina conosco e simplifica as coreogragia. Obrigad amiga!
+
 Maria José (minha mãe que fazia aula de swing baiano comigo)
 
 Instrutores:
-Paulinho Show, que nos incentiva todas as aulas e é um exemplo para nossas vidas. Waldir do Let's dance,
 Arthur de Zumba,
 Ritielly,
 Vitor,
@@ -69,7 +72,7 @@ Meu amigo Felipe do RJ.
 
 Academia Top Gym por ceder espaço para nossos treinos.
 
-Amigos que começaram juntos com nosso projeto: Daisy, Ana, Jô e Todos os alunos de dança da Rede Alpha e da Top Gym!
+Amigos que começaram juntos com nosso projeto: Ana, Jô e Todos os alunos de dança da Rede Alpha e da Top Gym!
 
 Fitdance
 
