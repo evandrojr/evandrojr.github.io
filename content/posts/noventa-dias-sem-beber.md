@@ -33,6 +33,6 @@ Hoje também comemoro a destruição de outras falsas crenças limitantes. Agora
 
 Veja esse excelente [perfil de Bruno](https://www.tiktok.com/@brunogomesasasevozes) onde ele fala abertamente que superou seus problemas com drogas. Estou grato a Deus que a única droga que eu cheguei a ter problemas foi o álcool. Mas se tivesse problemas com outras drogas eu também já saberia onde procurar ajuda. Valeu Bruno!
 
-Minha mãe me falou que meu pai frequentava o [N.A. Neoróticos anônimos](https://neuroticosanonimos.org.br/). Eu quando era ignorante achava que era coisa de maluco e julgava ele por isso. Mas tenho certeza que deve ser ótimo! Meu pai, assim como eu, era muito inteligente! Obrigado por ter ligado o F***** para o mundo também papai! Te amo! Até isso você me ensinou! 👏👏👏
+Minha mãe me falou que meu pai frequentava o [N/A Neoróticos anônimos](https://neuroticosanonimos.org.br/). Eu quando era ignorante achava que era coisa de maluco e julgava ele por isso. Mas tenho certeza que deve ser ótimo! Meu pai, assim como eu, era muito inteligente! Obrigado por ter ligado o F***** para o mundo também papai! Te amo! Até isso você me ensinou! 👏👏👏
 
 E você? Vai viver a vida dos outros ou vai procurar fazer o que quer sem se importar com as opiniões alheias. A vida é sua. Aliás, faça o que você achar melhor. Não se importe com a minha opinião também não. 
