@@ -2,17 +2,22 @@
 <urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9"
   xmlns:xhtml="http://www.w3.org/1999/xhtml">
   <url>
-    <loc>https://evandrojr.org/posts/amizades/</loc>
-    <lastmod>2023-10-01T06:00:53-03:00</lastmod>
+    <loc>https://evandrojr.org/</loc>
+    <lastmod>2024-04-26T21:45:28-03:00</lastmod>
     <changefreq>monthly</changefreq>
     <priority>0.5</priority>
   </url><url>
-    <loc>https://evandrojr.org/</loc>
-    <lastmod>2023-10-01T06:00:53-03:00</lastmod>
+    <loc>https://evandrojr.org/posts/sentido-da-vida/</loc>
+    <lastmod>2024-04-26T21:45:28-03:00</lastmod>
     <changefreq>monthly</changefreq>
     <priority>0.5</priority>
   </url><url>
     <loc>https://evandrojr.org/posts/</loc>
+    <lastmod>2024-04-26T21:45:28-03:00</lastmod>
+    <changefreq>monthly</changefreq>
+    <priority>0.5</priority>
+  </url><url>
+    <loc>https://evandrojr.org/posts/amizades/</loc>
     <lastmod>2023-10-01T06:00:53-03:00</lastmod>
     <changefreq>monthly</changefreq>
     <priority>0.5</priority>
