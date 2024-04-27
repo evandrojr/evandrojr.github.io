@@ -17,9 +17,8 @@ Já perguntou qual é o sentido da sua vida?
 
 Abaixo seguem as respostas para te ajudar a refletir:
 
-<!-- *Longo demais, resumindo: Siga seu coração e não se importe com a opinião dos outros.* -->
 
-Versão Claude 3 auxiliada por ChatGPT 3.5
+**Versão Claude 3 auxiliada por ChatGPT 3.5**
 
 Após analisar as duas respostas anteriores, sintetizo uma resposta única que captura os principais pontos:
 
@@ -35,6 +34,6 @@ Algumas tradições filosóficas e religiosas acreditam que o sentido último es
 
 Em última análise, o sentido da vida é uma questão pessoal, que envolve explorar nossas crenças, valores e experiências únicas para definir o que dá significado à nossa existência. Não há uma resposta certa ou errada, apenas a jornada de autodescoberta e realização pessoal.
 
-Versão ChatGPT 3.5 auxiliada por Claude 3
+**Versão ChatGPT 3.5 auxiliada por Claude 3**
 
 O sentido da vida humana é uma questão profundamente pessoal e subjetiva, que tem sido debatida ao longo da história. Não há uma resposta única e definitiva, pois isso pode variar de acordo com as crenças, valores e experiências individuais de cada pessoa. Alguns encontram significado através de conexões, relacionamentos e contribuições para o mundo e para os outros, enquanto outros acreditam que é necessário criar o próprio propósito e significado na vida. Para muitos, o sentido da vida está ligado à busca por felicidade, realização pessoal, contribuição para o bem-estar dos outros, ou cumprimento de um propósito divino. Em última análise, o sentido da vida é uma jornada de descoberta e crescimento pessoal, que pode evoluir ao longo do tempo com novas experiências e entendimentos.
