@@ -2,7 +2,7 @@
 title: "O sentido da vida"
 date: 2024-04-26T21:45:28-03:00
 draft: false
-featured_image: '/images/sentido-da-vida.jpg'
+featured_image: '/images/sentido-da-vida.png'
 ---
 
 ### Salvador, noite de sexta de 26 de abril de 2024
