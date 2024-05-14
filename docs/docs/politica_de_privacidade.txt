@@ -1,0 +1,54 @@
+Política de Privacidade
+
+1. Introdução
+
+Este aplicativo Android ("Aplicativo") não coleta nenhuma informação pessoal dos usuários. Esta política de privacidade ("Política") descreve como o aplicativo coleta, usa e compartilha informações. Ao usar o aplicativo, você concorda com os termos desta política.
+
+2. Coleta de Informações
+
+O aplicativo não coleta nenhuma informação pessoal dos usuários. Isso significa que o aplicativo não coleta informações como:
+
+Nome
+Endereço de email
+Número de telefone
+Localização
+Endereço IP
+Informações de conta de mídia social
+Qualquer outra informação que possa ser usada para identificar um indivíduo
+
+3. Uso de Informações
+
+O aplicativo não usa nenhuma informação pessoal dos usuários. Isso significa que o aplicativo não usa informações para:
+
+Enviar anúncios direcionados
+Rastrear sua atividade no aplicativo
+Compartilhar suas informações com terceiros
+
+4. Compartilhamento de Informações
+
+O aplicativo não compartilha nenhuma informação pessoal dos usuários com terceiros. Isso significa que o aplicativo não compartilha informações com:
+
+Empresas de publicidade
+Redes de análise
+Outros aplicativos
+
+5. Segurança de Informações
+
+O aplicativo toma medidas para proteger suas informações contra acesso não autorizado, uso indevido e divulgação. Essas medidas incluem:
+
+Armazenar informações em servidores seguros
+Usar criptografia para proteger as informações
+Implementar medidas de segurança físicas e técnicas
+
+6. Alterações nesta Política
+
+O desenvolvedor do aplicativo pode modificar esta política a qualquer momento. Se houver alterações, o desenvolvedor notificará os usuários publicando a política revisada no aplicativo ou no site do desenvolvedor.
+
+7. Contato
+
+Se você tiver alguma dúvida sobre esta política, entre em contato com o desenvolvedor do aplicativo em evandrojr@gmail.com .
+
+8. Declaração Final
+
+Esta política de privacidade foi atualizada pela última vez em 14 de maio de 2024.
+
